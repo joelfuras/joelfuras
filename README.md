@@ -1,7 +1,7 @@
 # 🦊 Hi, I’m @joelfuras  
 
 ### 👨‍💻 About Me:
-- 🔥 16-year-old programmer and furry enthusiast  
+- 🔥 16.7-year-old programmer and furry enthusiast  
 - ❤️ A huge fan of **Weekend ~ Zeta Haru** – Joel is my inspiration!  
 - 🌈 Bisexual (but heavily leaning toward guys 💕)
 
